@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on je cherche des serveur minecraft qui acceptent des gens qui n'aiment pas voc, "car je suis timide"
 - 📫 How to reach me même psuedo sur Discord
 - 😄 Pronouns: XD
-- ⚡ Fun fact: j'en ai pas :,)
+- ⚡ Fun fact: que le K de mon psuedo, en local, ses un C et pas que sur Github !
 
 <!---
 Klip29mat1/Klip29mat1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
